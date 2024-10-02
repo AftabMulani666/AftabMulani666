@@ -12,7 +12,7 @@
 -    Email :- aftabmulani1739@Gmail.com
 -    Instagram :- https://www.instagram.com/_afftab___?igsh=MTByYmFxcHIyaWQ1Yg==
 - 😄 Pronouns: He/Him.
-- ⚡ Fun fact: I Don't Close My Until I Got My Satisfied Solution.
+- ⚡ Fun fact: I Don't Close Work My Until I Got My Satisfied Solution.
 - ✉️ Get In Touch
      I’m always open to discussing new ideas, collaborations, or just having a chat about coding! Don’t hesitate to reach out.
 
