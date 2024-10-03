@@ -5,7 +5,6 @@
 - 👀 I’m interested In To Solve Any Programming Related Issue And To Evolve My Skills.
 - 🌱 Currently Learning
       I’m currently exploring Web,C#,C++ , and I’m excited to apply this knowledge in my projects.
-- - 🌱 I’m currently learning Web,C#,
 - ✉️ Get In Touch
      I’m always open to discussing new ideas, collaborations, or just having a chat about coding! Don’t hesitate to reach out.
 - 📫 How to reach me
